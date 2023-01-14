@@ -1,16 +1,22 @@
-### Hi there 👋
+Typing SVG](https://readme-typing-svg.demolab.com?font=Fira+Code&pause=1000&width=435&lines=%F0%9F%91%8B+Hi+%F0%9F%91%8B+My+name+is+Chocobae%E2%80%A6..;Welcome+!+To+programming%E2%80%A6;Iam+new+in+software+Eng.+I+love+to+learn)](https://git.io/typing-svg)
 
-<!--
-**chocobae/chocobae** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+#i-am-a-software-engineering-student-at-alx-i-learn-by-doing
 
-Here are some ideas to get you started:
+🏋️‍♀️I’m currently working on my coding skills...
 
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+Iam open for any software collaboration and also learning too..
+
+Connect with  me on:
+
+https://github.com/chocobae#connect-with-me
+
+❤️ LinkedIn 
+💙🎫 Facebook 
+🏵 Twitter 
+🎭 Email
+
+
+
+
+
+
